@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ayushrajatwork
 - 👀 I’m interested in Android and AI
 - 🌱 I’m currently learning Android
-- 📫 How to reach me: mail @ ayushkainternet@gmail.com
+- 📫 How to reach me: ayushkainternet@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Though I am a introvert, I do express!
 
